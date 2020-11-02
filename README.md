@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning : python and java scripte
 - 💬 Ask me about : python scripts,codes
 - 😄 Pronouns:Behi
-- ⚡ Fun fact: I kepp a lovely parrot that calss her Fandogh
+- ⚡ Fun fact: I keep a lovely parrot that calss her Fandogh
 
 Contact Me:
 [Linkedin](https://www.linkedin.com/in/behnaz-mohammadi-3790511bb/)  l  [Telegram](t.me/shadi_moshirieh) l  [Instagram](https://instagram.com/behnaz_._mohammadi)
