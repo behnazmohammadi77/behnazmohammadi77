@@ -4,7 +4,7 @@
 <!--
 **behnazmohammadi77/behnazmohammadi77** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile. -->
 
-Here are some things that introduce me🙈
+Here are some things that introduce me 🙈
 
 - 🔭 I’m currently working on : python🐍
 - 🌱 I’m currently learning : python and java scripte
