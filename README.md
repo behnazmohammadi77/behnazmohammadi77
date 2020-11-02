@@ -13,4 +13,4 @@ Here are some things that introduce me🙈
 - ⚡ Fun fact: I keep a lovely parrot 🐦 that calls her Fandogh
 
 Contact Me:
-[Linkedin](https://www.linkedin.com/in/behnaz-mohammadi-3790511bb/)  l  [Email](behnazmohamadi3@gmail.com) l [Telegram](t.me/shadi_moshirieh) l  [Instagram](https://instagram.com/behnaz_._mohammadi) l
+[Linkedin](https://www.linkedin.com/in/behnaz-mohammadi/)  l  [Email](behnazmohamadi3@gmail.com) l [Telegram](t.me/shadi_moshirieh) l  [Instagram](https://instagram.com/behnaz_._mohammadi) l
