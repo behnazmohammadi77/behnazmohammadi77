@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: I keep a lovely parrot that calss her Fandogh
 
 Contact Me:
-[Linkedin](https://www.linkedin.com/in/behnaz-mohammadi-3790511bb/)  l  [Telegram](t.me/shadi_moshirieh) l  [Instagram](https://instagram.com/behnaz_._mohammadi)
+[Linkedin](https://www.linkedin.com/in/behnaz-mohammadi-3790511bb/)  l  [Email](behnazmohamadi3@gmail.com) l [Telegram](t.me/shadi_moshirieh) l  [Instagram](https://instagram.com/behnaz_._mohammadi) l
